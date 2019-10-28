@@ -30,7 +30,7 @@ Cook/smoke at 250F/121C until internal temperature reaches 160F/71C. Wrap briske
 
 Take brisket away from heat and allow it to rest for at least 2 hours (wrapped). I prefer putting the brisket in a [cooler](https://www.amazon.com/Coleman-Performance-Cooler-48-Quart-Blue/dp/B0000DH4LT/ref=sr_1_4?dchild=1&keywords=cooler&qid=1572289366&sr=8-4) as it can help retain some heat for "carry over". 
 
-Once brisket has rested, split the [flat from the point](https://www.smoker-cooking.com/whole-beef-brisket.html) and slice against the grain. 
+Once the brisket has rested, split the [flat from the point](https://www.smoker-cooking.com/whole-beef-brisket.html) and slice against the grain. 
 
 Enjoy!
 
