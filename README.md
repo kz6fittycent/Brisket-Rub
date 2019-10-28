@@ -19,6 +19,7 @@ Equal parts:
 - Cayenne
 - Paprika
 - Celery salt/seeds
+- Cumin
 
 # Application
 After trimming the brisket, apply olive oil to all sides of the brisket, as a binder. With the brisket turned upside-down, liberally apply the rub. Turn brisket right-side up and repeat. 
