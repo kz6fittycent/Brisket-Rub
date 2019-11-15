@@ -22,7 +22,7 @@
 - Place in refrigerator for at least 12 hours (24 hours is preferred)
 
 
-##Prepping for Cooking/Smoking:
+## Prepping for Cooking/Smoking:
 
 - Preheat the oven/smoker to 350F
 
