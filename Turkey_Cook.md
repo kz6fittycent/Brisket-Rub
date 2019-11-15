@@ -42,6 +42,7 @@
     
 - Add rub - 
     - LIBERALLY apply rub to the internal cavity of the turkey 
+      
         - You can also add stuffing or fruit to the cavity to evenly cook the turkey
         
     - Add rub to the skin of the turkey to add color and flavor
@@ -49,8 +50,10 @@
 - Cook/Smoke:
     - Cook the turkey loosely covered in foil for 1.5 hours (a.k.a. 'tenting')
     
-    - Remove the foil 'tent'
+        - Remove the foil 'tent'
+        
     - Continue to cook the turkey until the internal temperature reaches 160F in the breast 
+        
         - usually about 3.5 hours TOTAL for ~13lbs bird
         
 - Rest time:
