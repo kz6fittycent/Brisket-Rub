@@ -27,31 +27,34 @@
 - Preheat the oven/smoker to 350F
 
 - Dry - 
-    Completely dry the turkey, including allowing it to drip dry as much as possible. This will
-    prevent the turkey from being "chewy" and allow the skin to crisp well. 
+    - Completely dry the turkey, including allowing it to drip dry as much as possible. This will
+    - prevent the turkey from being "chewy" and allow the skin to crisp well. 
 
 - Injection - 
-    Melt two sticks of butter (unsalted or salted)
-    Add 2 tablespoons of your favorite rub to the melted butter and mix
-    Inject the turkey with mixture in all major muscles (e.g. breast, thighs, drums, etc)
+    - Melt two sticks of butter (unsalted or salted)
+    
+    - Add 2 tablespoons of your favorite rub to the melted butter and mix
+    
+    - Inject the turkey with mixture in all major muscles (e.g. breast, thighs, drums, etc)
     
 - Oil the skin - 
-    Spray the skin with a vegetable oil spray or rub/brush olive oil to completely cover the skin.
+    - Spray the skin with a vegetable oil spray or rub/brush olive oil to completely cover the skin.
     
 - Add rub - 
-    LIBERALLY apply rub to the internal cavity of the turkey 
-        You can also add stuffing or fruit to the cavity to evenly cook the turkey
+    - LIBERALLY apply rub to the internal cavity of the turkey 
+        - You can also add stuffing or fruit to the cavity to evenly cook the turkey
         
-    Add rub to the skin of the turkey to add color and flavor
+    - Add rub to the skin of the turkey to add color and flavor
     
 - Cook/Smoke:
-    Cook the turkey loosely covered in foil for 1.5 hours (a.k.a. 'tenting')
-    Remove the foil 'tent'
-    Continue to cook the turkey until the internal temperature reaches 160F in the breast 
+    - Cook the turkey loosely covered in foil for 1.5 hours (a.k.a. 'tenting')
+    
+    - Remove the foil 'tent'
+    - Continue to cook the turkey until the internal temperature reaches 160F in the breast 
         - usually about 3.5 hours TOTAL for ~13lbs bird
         
 - Rest time:
-    After the turkey has finished cooking, allow it to rest for ~30 minutes
+    - After the turkey has finished cooking, allow it to rest for ~30 minutes
     
 ## Carve and eat!
     
