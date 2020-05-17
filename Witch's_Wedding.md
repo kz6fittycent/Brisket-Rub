@@ -15,7 +15,7 @@ Link: [Cavendar's Greek Seasoning](https://tinyurl.com/ybsh6apv)
     - 1 can of new potatoes
     - 1 can of collard greens
     
-### Cook ingredients
+### Cook ingredients:
     - Brown bacon and DO NOT DRAIN
     - Add stick of butter and allow it to melt
     - Add onion and seasoning
@@ -26,7 +26,7 @@ Link: [Cavendar's Greek Seasoning](https://tinyurl.com/ybsh6apv)
     - Add corn, potatoes and collard greens
       - Continue simmering for another 15-20 minutes
 
-### Serving
+### Serving:
     - Serve in a bowl with a side of rice or serve over rice!
     - Cook some rolls or biscuits (American) as a side
     - Toast would be great, too
