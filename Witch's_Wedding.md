@@ -24,7 +24,7 @@ Link: [Cavendar's Greek Seasoning](https://tinyurl.com/ybsh6apv)
       - Allow to simmer for 5 minutes
     - Add broth and cream of chicken together
     - Add corn, potatoes and collard greens
-      - Continue simmering for another 10 minutes
+      - Continue simmering for another 15-20 minutes
 
 ### Serving
     - Serve in a bowl with a side of rice or serve over rice!
