@@ -22,7 +22,7 @@ Equal parts:
 - Cumin
 
 ## Application
-After trimming the brisket, apply olive oil to all sides of the brisket, as a binder. With the brisket turned upside-down, liberally apply the rub. Turn brisket right-side up and repeat. 
+After trimming the brisket, apply olive oil to all sides of the brisket, as a binder. With the brisket turned fat-side up, liberally apply the rub. Turn brisket fat-side down and repeat. 
 
 ## Cooking and Serving
 
