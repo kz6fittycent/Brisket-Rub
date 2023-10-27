@@ -12,7 +12,7 @@ Link: [Cavendar's Greek Seasoning](https://tinyurl.com/ybsh6apv)
     - 3-4 tablespoons of Cavendar's Greek Seasoning
     - 1/2 white onion or 1 tablespoon of onion powder
     - 1 can of corn (yellow)
-    - 1 can of new potatoes
+    - 1 can of new potatoes (use daikons for keto version)
     - 1 can of collard greens
     
 ### Cook ingredients:
